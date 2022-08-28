@@ -11,7 +11,7 @@
 
 ## 𝗦𝗨𝗢𝗥𝗖𝗘 ELMAFIA
 <p align="center">
-  <img src="https://telegra.ph/file/b144db94dc0db0fd86526.jpg">
+  <img src="hthttps://telegra.ph/file/ecec064141a4eeeb5d539.jpg
 </p>
 
 ## ✨ المميزات
@@ -66,4 +66,5 @@
 
 
 مطــــــــور السورس ¦🦦
-<a href="https://t.me/Mahmod777777"><img src="https://img.shields.io/badge/Dev%20ELRASAM-blue.svg?style=for-the-badge&logo=ELRASAM"></a> <a href="https://t.me/E_L_R_A_S_A_M"><img src="https://img.shields.io/badge/يـــــوزرا آلَرًسًــــــــآمِ-blue.svg?style=for-the-badge&logo=ELRASAM"></a> <a href="https://t.me/E_R_S_A_M1"><img src="https://img.shields.io/badge/ELRASAM2-blue.svg?style=for-the-badge&logo=ELRASAM"></a>
+<a href="https://t.me/Mahmod777777"><img src="https://img.shields.io/badge/Dev%20ELRASAM-blue.svg?style=for-the-badge&logo=ELRASAM"></a> <a href="https://t.me/E_L_R_A_S_A_M"><img src="https://img.shields.io/badge/يـــــوزرا آلَرًسًــــــــآمِ-blue.svg?style=for-the-badge&logo=ELRASAM"></a> <a href="https://t.me/E_R_S_A_M1"><img src="https://img.shields.io/badge/ELRASAM2-blue.sv=for-the-badge&log
+       =ELRASAM"></a>
